@@ -1,0 +1,1 @@
+# Subsol-varianta-A
